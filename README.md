@@ -1,4 +1,4 @@
-# 🚀 Unlimited Fake USDT – Experience lightning-fast crypto transfers across major networks!
+# Unlimited Fake USDT – Experience lightning-fast crypto transfers across major networks!
 
 ### 🔥 Super low fees
 ### ⚡ Instant transaction speed
